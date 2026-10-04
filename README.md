@@ -1,2 +1,15 @@
-# gitagroups&snepal.com
-This is Gita Aaarogyam and Aroma Herbal Gharelu udhog where we create and innovates the 100 %fact and real products with Zero additive 100%Natural authentic valuable and better quality products.Our company not only work for company products get good fitted with people health with zero tolerance of any additive by preservation of 100 %Authentic test of food.
+# Gita Aarogyam & Aroma Herbal Gharelu Udyog
+
+Gita Aarogyam & Aroma Herbal Gharelu Udyog creates and innovates 100% natural, authentic, and high-quality products with zero additives. We support local farmers and promote traditional herbal practices to produce safe, natural products that improve health and preserve Nepali heritage.
+
+Our mission
+
+- Produce pure and natural products with no harmful chemicals.
+- Support local farming communities and traditional knowledge.
+- Offer eco-friendly and sustainable products.
+
+Contact
+
+- Location: Ma.Na.Pa. Birgunj -32 Parsa Nepal
+- Phone: 9814265015, 9845889318, 9819283005, 9816228679
+- Email: gitas9393@gmail.com
