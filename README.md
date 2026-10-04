@@ -1,4 +1,4 @@
-# Gita Aarogyam & Aroma Herbal Gharelu Udyog
+# gitagroups&snepal.com
 
 Gita Aarogyam & Aroma Herbal Gharelu Udyog creates and innovates 100% natural, authentic, and high-quality products with zero additives. We support local farmers and promote traditional herbal practices to produce safe, natural products that improve health and preserve Nepali heritage.
 
