@@ -21,3 +21,4 @@ Product names:
 6. Gita Aarogyam Sarson Swarna - 100% Mustard Oil
 
 These are branding/product-name concepts. Verify ingredients, weights, pricing, licenses and legal label claims before commercial sale.
+footer:© 2026 Gita Aarogyam & Aroma Herbal Gharelu Udyog,All rights Reserved.
